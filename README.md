@@ -1,3 +1,4 @@
+![logo](https://github.com/ipsita-kar/ipsita-kar/blob/main/Orange%20and%20White%20Geometric%20Food%20Vlogger%20YouTube%20Channel%20Art.png)
 ## Hi there 👋
 
 <!--
